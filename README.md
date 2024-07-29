@@ -10,4 +10,4 @@ Meu nome é Juan Gabriel Salles
 
 sallesjuangabriel@gmail.com
 
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fbr.pinterest.com%2Fpin%2F614389574152657744%2F&psig=AOvVaw2fBhurARaqraW_d_fkbB92&ust=1722369297300000&source=images&cd=vfe&opi=89978449&ved=0CA4QjRxqFwoTCLj-5-KDzYcDFQAAAAAdAAAAABAE
+https://media.giphy.com/media/VEzYdo930nTiTuVeMU/giphy.gif?cid=790b7611ohnhqstnjm9ahv2gpl1qdlk9vs3mtzxeuvbb6ui9&ep=v1_gifs_search&rid=giphy.gif&ct=g
